@@ -1,2 +1,2 @@
-# tugas-jurnal-3
-tugas
+NAMA : MUHAMMAD REIHAN AKMAL 
+NIM  : 6706204111
